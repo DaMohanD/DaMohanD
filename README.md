@@ -1,0 +1,10 @@
+- 👋 Hi, I’m Mohan 👋
+- I'm a professional working with One Ocean Logistics and Services Pvt Ltd, a company that specializes in container repair, storage, sales, and transportation. Additionally, I'm currently pursuing a Master of Science in AI and ML at Scaler, expanding my expertise in advanced technologies.
+- New to Github
+- 🌱 I’m currently Pursuing a Master of Science in AI and ML at Scaler to enhance my skills in artificial intelligence and machine learning. ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- **Email**: mohandsh176@icloud.com
+- **LinkedIn**: www.linkedin.com/in/mohan-dash-85b86a72
+- **GitHub**: [Your GitHub Profile]
+- Feel free to connect with me for any collaboration or inquiries related to container logistics, transportation, or AI and ML. Looking forward to connecting with like-minded professionals and exploring new opportunities!
